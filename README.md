@@ -1,2 +1,2 @@
 # beauty-in-the-world
-Amainzing sites to see!
+Amazing sites to see!
